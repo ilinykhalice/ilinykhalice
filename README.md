@@ -57,5 +57,5 @@ Google, 2021
 
 ## 📍 Свяжитесь со мной
 
-[📧 Email](mailto:ilinykh.alice@yandex.ru) | [📱 Telegram](https://t.me/Alisles) | [💼 LinkedIn](ваша_ссылка)
+[📧 Email](mailto:ilinykh.alice@yandex.ru) | [📱 Telegram](https://t.me/Alisles) | [💼 LinkedIn](https://www.linkedin.com/in/ilinykh-alice)
 📅 **Резюме обновлено**: 15 апреля 2025  
